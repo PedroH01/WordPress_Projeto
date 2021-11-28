@@ -1,1 +1,7 @@
-# WordPress_Projeto
+# WordPress_Projeto![Elementor #21 – Pedro - Google Chrome 27_11_2021 22_11_56](https://user-images.githubusercontent.com/74620116/143725125-742d8ff1-200c-428b-a967-691810b64cee.png)
+![Elementor #21 – Pedro - Google Chrome 27_11_2021 22_12_06](https://user-images.githubusercontent.com/74620116/143725126-4228c6d4-48fb-47be-baeb-de2cc8be7499.png)
+![Elementor #21 – Pedro - Google Chrome 27_11_2021 22_12_14](https://user-images.githubusercontent.com/74620116/143725127-64adfde9-c1f9-4763-894d-f392e1e9ddd0.png)
+![Elementor #21 – Pedro - Google Chrome 27_11_2021 22_11_24](https://user-images.githubusercontent.com/74620116/143725128-a6755067-4e34-4bee-ac8e-95a5770c3f65.png)
+![Elementor #21 – Pedro - Google Chrome 27_11_2021 22_11_33](https://user-images.githubusercontent.com/74620116/143725130-26f593fd-731a-4fca-808a-d6add0dcfc05.png)
+![Elementor #21 – Pedro - Google Chrome 27_11_2021 22_11_41](https://user-images.githubusercontent.com/74620116/143725131-45554e34-2458-4f4e-888c-1801cf325687.png)
+![Elementor #21 – Pedro - Google Chrome 27_11_2021 22_11_48](https://user-images.githubusercontent.com/74620116/143725132-749ddc41-90d3-44fd-988b-735a47490dc0.png)
